@@ -2,13 +2,13 @@
 <br />
 <br />
 
-![](https://komarev.com/ghpvc/?username=Bigguykoi&color=eaeade&label=ㅤㅤㅤTHEㅤIRONㅤLEGIONㅤㅤㅤ&style=plastic)
+![](https://komarev.com/ghpvc/?username=Bigguykoi&color=e5c8c0&label=ㅤㅤㅤTHEㅤIRONㅤLEGIONㅤㅤㅤ&style=plastic)
 <br />
 <br />
 <br />
 <br />
 
-<img width="750" height="750" alt="image" src="https://github.com/user-attachments/assets/0e231cbf-82d7-482e-9585-88a16c83356c" />
+<img width="750" height="750" alt="image" src="https://github.com/user-attachments/assets/0bfef03f-0ca1-4def-a360-df33ab792711" />
 
 <br />
 <br />
