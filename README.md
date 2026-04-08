@@ -1,80 +1,30 @@
 <div align="center">
-<br />
-<br />
-
-![](https://komarev.com/ghpvc/?username=Bigguykoi&color=eaeade&label=ㅤㅤㅤTHEㅤIRONㅤLEGIONㅤㅤㅤ&style=plastic)
-<br />
-
-<sub> 
-
-</sub> 
+  
+<img width="500" height="660" align="left" src="https://files.catbox.moe/gd11or.png">
 
 
 
-![ironmanmarvelGIF-ezgif com-gif-maker](https://github.com/user-attachments/assets/60044e01-275f-4135-bef7-9bb0dfa0032a)
+<br/>
 
+<br/>
 
+<br/>
 
-<br />
+<img width="230" height="230" align="right" src="https://github.com/user-attachments/assets/089d60d7-17cc-4227-a214-f82335f885df" />
 
- <sub>
- <p align="center"> ${\textsf{\color{#89a7ac}"Genius, billionaire, playboy, philanthropist"}}$
- </sub> 
- 
-<br />
-<br />
-<br />
+<br/>
 
+<br/>
 
-${\textsf{\color{#ebebe0}ⓘ I can get easily irritated, don’t be weird if I don’t know you. Constant low social battery, expect slow/minimal replies.}}$
+$\text{\color{#f8c6ae} Howdy! Cud + int freely}$\
+$\text{\color{#f8c6ae} I'm usually offtab, so}$\
+$\text{\color{#f8c6ae} I would prefer if you'd}$\
+$\text{\color{#f8c6ae} whisper to get my attention}$\
+$\text{\color{#f8c6ae} (｡ᵕ ◞  . ◟) }$\
+<br/>
+<br/>
 
+[<img width="120" height="120" src="https://files.catbox.moe/naheob.png">](https://rentry.co/skeeter)  [<img width="120" height="120" src="https://files.catbox.moe/9qpdky.png">](https://forsaken.atabook.org/)  [<img width="120" height="120" src="https://files.catbox.moe/yvep6j.png">]()
 
-<br />
-<br />
-
-
-**[新book](https://ironman.atabook.org)**
-ㅤㅤ
-**[strawpage](https://tny-strk.straw.page)**
-ㅤㅤ
-**[rentry](https://rentry.co/rogersstark)**
-ㅤㅤ
-**[kinlist](https://lronman.straw.page)**
-
-
-
-<br />
-
-${\textsf{\color{#f9e6b7}ㅤㅤ✦ㅤㅤ}}$
-
-<br />
-
-
-<p align="center"> ${\textsf{\color{#e0e7db}Sign ata or straw before you leave! :-)}}$
-
-<br />
-<br />
-
-
-<br />
-
-
-<details>
-  <summary>Skin stealer shit</summary><h5 align="center">
- IN SUMMARY; Me and Nyx (ikol, formerly moonflowersilver) got into an argument. I asked them to stop using my gift pony as a base because they ended up using it to make their friend a gift which I wasn't ok with at all. They responded aggressively with completely absurd arguments like, for example, 'a ton of people tint the same way as you and have almost the exact same style as you. ' and 'You do know what pseudo means, right? Pseudo literally means something or someone fake trying to pass off as the real thing or something fake or false. That's literally my current style. A fake version of yours.' Idk what the fuck hes trying to say here aside from his style is literally just mine.  ('- '|||)
-   <br />
-  <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/11e072ee-e01a-43af-89fd-d808f9a695a1" />
-<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/2e60bce7-7e53-44e9-9432-77218be479b4" />
-<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/3895bd9b-9347-4e36-840f-82a7eaa89147" />
-
-<br />
-<br />
-The faces are the exact same colour if u colourpick... : #4c5550 for the skin, #5e5d3e for the helmet, #544d40 for the cheeks and so on. His response was that I didn't own the colours or tinting style even though they were getting it off of MY pony? Just putting this out there incase he does the same to anyone else who gifts him </3
-
-<br />
-<br />
-<img width="300" height="350" alt="image" src="https://github.com/user-attachments/assets/a0fa40a8-5e8b-4963-a1f8-dce4be651800" />
-
-<img width="200" height="100" alt="image" src="https://github.com/user-attachments/assets/34bb9426-e74e-4640-ad9f-0e0b4f30edb2" />
-<br />
-He lied to me and said he had his own consistent style in some half-assed, insincere apology ONLY to get me to remove this part from my github. Actual fucking scumbag behaviour bro.
+$\text{\color{#AF968A} Sign my ata before you go!}$
+</div>
