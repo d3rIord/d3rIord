@@ -24,7 +24,7 @@ $\text{\color{#f8c6ae} (｡ᵕ ◞  . ◟) }$\
 <br/>
 <br/>
 
-[<img width="120" height="120" src="https://files.catbox.moe/naheob.png">](https://rentry.co/skeeter)  [<img width="120" height="120" src="https://files.catbox.moe/9qpdky.png">](https://forsaken.atabook.org/)  [<img width="120" height="120" src="https://files.catbox.moe/yvep6j.png">]()
+[<img width="120" height="120" src="https://files.catbox.moe/naheob.png">](https://Tonystark.atabook.org)  [<img width="120" height="120" src="https://files.catbox.moe/9qpdky.png">](https://tny-strk.straw.page)  [<img width="120" height="120" src="https://files.catbox.moe/yvep6j.png">](https://rentry.co/-stony)
 
 $\text{\color{#AF968A} Sign my ata before you go!}$
 </div>
