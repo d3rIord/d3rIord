@@ -1,6 +1,6 @@
 <div align="center">
   
-<img width="500" height="660" align="left" src="https://files.catbox.moe/gd11or.png">
+<img width="550" height="710" align="left" src="https://files.catbox.moe/gd11or.png">
 
 
 
