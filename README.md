@@ -4,10 +4,19 @@
  
 <img width="750" height="750" alt="image" src="https://github.com/user-attachments/assets/e6e8aa9c-e7a6-4777-a978-fedd33a9891b" />
 
+
+
 <div align="center">
   
-ㅤㅤ  [<img width="350" height="350" src="https://github.com/user-attachments/assets/3b3e716b-6eaf-4fa4-9b83-dc8bde8c3495">](https://Tonystark.atabook.org) ㅤㅤ[<img width="350" height="350" src="https://github.com/user-attachments/assets/b6d31800-030e-47cd-9c87-ba662c3b93c8">](https://tny-strk.straw.page) ㅤㅤ[<img width="350" height="350" src="https://github.com/user-attachments/assets/d6effba5-75d6-43ca-a613-051f1ce1953d">](https://rentry.co/-stony)
 ㅤㅤ
+[<img width="275" height="275" src="https://github.com/user-attachments/assets/d6effba5-75d6-43ca-a613-051f1ce1953d">](https://rentry.co/-stony)ㅤ
+ㅤㅤ
+[<img width="275" height="275" src="https://github.com/user-attachments/assets/b6d31800-030e-47cd-9c87-ba662c3b93c8">](https://tny-strk.straw.page)
+ㅤ
+ㅤㅤㅤ[<img width="275" height="275" src="https://github.com/user-attachments/assets/3b3e716b-6eaf-4fa4-9b83-dc8bde8c3495">](https://Tonystark.atabook.org)
+ㅤㅤ
+
+
 <br />
  <br/>
  
@@ -18,5 +27,3 @@ $\text{\color{#506b52} whisper to get my attention}$\
 $\text{\color{#4b8262} (｡ᵕ ◞  . ◟) }$\
 <br/>
 <br/>
-
-
