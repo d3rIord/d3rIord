@@ -13,7 +13,7 @@
 ㅤㅤ
 [<img width="250" height="250" src="https://github.com/user-attachments/assets/b6d31800-030e-47cd-9c87-ba662c3b93c8">](https://tny-strk.straw.page)
 ㅤ
-ㅤㅤㅤㅤ[<img width="250" height="250" src="https://github.com/user-attachments/assets/3b3e716b-6eaf-4fa4-9b83-dc8bde8c3495">](https://Tonystark.atabook.org)
+[<img width="250" height="250" src="https://github.com/user-attachments/assets/3b3e716b-6eaf-4fa4-9b83-dc8bde8c3495">](https://Tonystark.atabook.org)
 ㅤㅤ
 <div align="center">
 
